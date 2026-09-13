@@ -1,6 +1,7 @@
 # astrology-conjuctions
 astrological red flags in girls experienced by me in real interaction KP astro and jamini and conjuctions seen
 ## conjuctions and files for extra marital
+
 ### IF three indicators matched means girl is red flag 
 
 ```
@@ -9,7 +10,7 @@ Girls often lies stay aware they will reject i seen
 35 girls examined 20 agreed others lied some triggered
 3 three or 4 planets in same house red flag seen on the spot
 ```
-#### pre marital conjuctions for red flag girls
+#### PRE marital conjuctions for red flag girls
 [12-09-2026 19:45] ====: Venus in scorpio 4 mercury in libra 3rd house 10th house Taurus only
 
 [12-09-2026 19:45] ====: jupiter sun venus in 12th red flag girl 
