@@ -10,6 +10,7 @@ Girls often lies stay aware they will reject i seen
 35 girls examined 20 agreed others lied some triggered
 3 three or 4 planets in same house red flag seen on the spot
 ```
+> # NOTE: any three conjuctions matched in a chart that depicts vishkanya or red flag girl
 
 ## PRE marital conjuctions for red flag girls ( non virgin) 
 
