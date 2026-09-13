@@ -13,7 +13,7 @@ Girls often lies stay aware they will reject i seen
 > ## NOTE: any three conjuctions matched or LORDS interchanged  in a chart that depicts vishkanya or red flag girl
 
 ## PRE marital conjuctions for red flag girls ( non virgin) 
-
+> with testing date
 [12-09-2026 19:45] ====: Venus in scorpio 4 mercury in libra 3rd house 10th house Taurus only
 
 [12-09-2026 19:45] ====: jupiter sun venus in 12th red flag girl and leo 5th sign then  manipulator too
