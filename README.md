@@ -31,6 +31,8 @@ darakarak in 6th risk you will marry a enemy its self proof guys
 
 sun moon in 7th high breakups or in taurus risk its karmic if in 7th house
 
+even if atmakarak is jupiter that person can have affairs as affliction matters 
+
 [23-08-2026 12:54] ====: 8th lord Mercury and moon is psychopath
 
 [23-08-2026 12:56] ====: Moon rahu and budh is extensive trauma or genius
