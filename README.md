@@ -344,3 +344,18 @@ Sun ketu in 6 risk
 Moon in  lagna in those and lgnesh led to same thing just aware not take this moon conjuction serious as i dont have data for this line only
 
 Rahu ketu in 7 most danger as i seen its famous conjuction
+
+Venus mercury in self sign 3 odd 12th house non virgin obviously
+
+mercury venus in 5 or 6 or 11 or 12 non virgin cheaters
+
+Ketu Mars in 8th house manglik yog in d1 after & d9 before marriage
+Or only Mars also
+
+5th lord in 8th if any of them is mars or saturn in it dokebaz hoge
+
+odd lgna odd moon in 7th riskk real seen in d9  1st also ws there real experience from each chart
+
+ketu mars in 2 or 6 danger danger danger 8,12 sonam siya criminal  cases of india 
+
+sun mercury 5 or 7 or 8 or 12 or 11 non virgin one of the indicators to match if 3 satisfied run away
