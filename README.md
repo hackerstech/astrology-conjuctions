@@ -4,7 +4,7 @@
 
 # astrology-conjuctions
 astrological red flags in girls experienced by me in real interaction KP astro and jamini and conjuctions seen
-##  Filex for extra marital 
+##  Filex and FileZx for extra marital 
 
 ### IF three indicators matched means girl is red flag 
 
