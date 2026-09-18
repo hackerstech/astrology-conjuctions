@@ -7,7 +7,7 @@ astrological red flags in girls experienced by me in real interaction KP astro a
 ```
 lets start my experience on others chart examine
 Girls often lies stay aware they will reject i seen 
-35 girls examined 20 agreed others lied some triggered
+35 girls examined 25 agreed others lied some triggered
 3 three or 4 planets in same house red flag seen on the spot
 ```
 > ## NOTE: any three conjuctions matched or LORDS interchanged  in a chart that depicts vishkanya or red flag girl
@@ -351,6 +351,8 @@ mercury venus in 5 or 6 or 11 or 12 non virgin cheaters
 
 Ketu Mars in 8th house manglik yog in d1 after & d9 before marriage
 Or only Mars also
+
+venus saturn in 7 or 8th house big indication of affairs before and after marriage also 
 
 5th lord in 8th if any of them is mars or saturn in it dokebaz hoge
 
