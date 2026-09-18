@@ -360,4 +360,5 @@ odd lgna odd moon in 7th riskk real seen in d9  1st also ws there real experienc
 
 ketu mars in 2 or 6 danger danger danger 8,12 sonam siya criminal  cases of india 
 
-sun mercury 5 or 7 or 8 or 12 or 11 non virgin one of the indicators to match if 3 satisfied run away
+sun mercury 5 or 7 or 8 or 12 or 11 non virgin one of the indicators to match
+if three indicators or 2 big satisfied run away
