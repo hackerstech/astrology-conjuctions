@@ -254,7 +254,7 @@ jupiter in 12th is worse
  
 [07-09-2026 11:15] ====: 5th lord in 12th sexual rltn and 8
 
-[07-09-2026 11:29] ====: Saggaritus ascendent with 4th house Jupiter is best character
+
 
 [07-09-2026 11:56] ====: Venus and Mercury 7 8 and 10 rand
 Venus in 12
@@ -368,7 +368,7 @@ venus saturn in 7 or 8th house big indication of affairs before and after marria
 
 odd lgna odd moon in 7th riskk real seen in d9  1st also ws there real experience from each chart
 
-ketu mars in 2 or 6 danger danger danger 8,12 sonam siya criminal  cases of india 
+ketu mars in 2 or 6 danger danger danger 8,12 criminal  cases of india 
 
 sun mercury 5 or 7 or 8 or 12 or 11 non virgin one of the indicators to match
 if three indicators or 2 big satisfied run away
