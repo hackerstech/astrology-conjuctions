@@ -21,6 +21,8 @@ Girls often lies stay aware they will reject i seen
 
 [12-09-2026 19:45] ====: Venus in scorpio 4 mercury in libra 3rd house 10th house Taurus only
 
+[12-09-2026 19:45] ====: ketu saturn venus in 12th house run awayy this is afflicted whole  bigg red flagg 
+
 [12-09-2026 19:45] ====: jupiter sun venus in 12th red flag girl and leo 5th sign then  manipulator too (7th house lord seen in 12th house as well)
 
 [12-09-2026 19:45] ====: saturn moon in girls chart she does not respect his mother and you
