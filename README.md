@@ -47,7 +47,11 @@ If you have in 6th and 2nd then you can get murdered or red flag
 
 [23-08-2026 13:11] ====: Jupiter rahu in 12 8 6 2 house red flag
 
-jupiter rahu 6 8 12
+[23-08-2026 13:11] ====:  rahu in 1st house ketu in 7th  red flagg
+
+[23-08-2026 13:11] ====: ketu in 1st and rahu in 7th red flag point
+
+jupiter rahu 6 8 12 actually jupiter supports casual sex before marriage in 8 or 12 thatswhyy and jupiter mars also if in 8 or 12 one of the big points
 
 [23-08-2026 14:32] ====: Rahu Mercury moon high bodycount
 
