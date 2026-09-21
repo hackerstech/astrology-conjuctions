@@ -110,7 +110,6 @@ Moon in 2 4 6 8 12 with odd signs but above should match
 [23-08-2026 22:49] ====: https://www.scribd.com/document/471070772/Extra-Marital-Relationship-And-Vedic-Astrology
 
 [23-08-2026 23:29]
-
 > ‎⁨Moon in aries or moon Mars at 10th house or any other Moon in...
 1st lord in 10th at office affair
 
@@ -164,7 +163,8 @@ Moon rahu  danger
 [25-08-2026 11:39] ====: Venus in 4th and Mars 10th or vice versa, the native having extramarital relations
 
 [25-08-2026 11:40] ====: The combination of Sun & Venus: This Planetary position creates huge sexual appetite that can't be easily be exhausted @ they would indulge in sex, as long as the natives body requires
-.
+
+
 [25-08-2026 12:56] ====: Venus-Saturn Conjunction: This pairing in key houses (like the 2nd, 4th, or 7th) often introduces coldness, emotional distance, and heavy burdens into a marriage.
 
 [25-08-2026 13:49] ====: jupiter ketu in 5th house affairs detachment break up
@@ -213,7 +213,8 @@ Jupiter in the second house gives late marriage. Venus in the second house
 gives a working wife and in most cases, luck favors you after marriage.
 
 
-[04-09-2026 20:26] ====: Venus Jupiter: issues in 6 8 12
+[04-09-2026 20:26] ====: Venus Jupiter: issues in 6 
+Jupiter supports wrong thing mainly in-> 8 ,11,12 
 
 [05-09-2026 11:06] ====: Venus sun 2 4 7 9 5
 
@@ -267,7 +268,7 @@ Venus in 12
 
 [07-09-2026 13:42] ====: 12th have Sun or moon or Mars / 1th lord in 12th
 If 8th and scorpio with these same affairs
-Venus moon amplify same
+Venus moon amplify same or in 8 house
 
 [07-09-2026 15:11] ====: Venus in 10 much sex enjoyment
 Mars in 8
@@ -332,7 +333,7 @@ Ketu moon risk
 
 6th in 12 conflicts
 
-[11-09-2026 16:15] ====: https://www.scribd.com/document/928075282/K-C-Saxena-Venus-in-Astrology#page=339
+[11-09-2026 16:15] ====: https://www.scribd.com/document/928075282/K-C-Saxena-Venus-in-Astrology#page=339 
 venus in 4th as scorpio and 3rd house as mercury in libra and 10th house taurus
 gives hidden affair near house and office
 
