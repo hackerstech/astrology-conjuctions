@@ -372,3 +372,12 @@ ketu mars in 2 or 6 danger danger danger 8,12 criminal  cases of india
 
 sun mercury 5 or 7 or 8 or 12 or 11 non virgin one of the indicators to match
 if three indicators or 2 big satisfied run away
+
+
+# PALMISTRY
+
+### dont marry if u have lines that are going downfall side 
+### more than one line indicates you are manglik 
+#### im manglik seee lines going down divorce written in kundali as well as in hand
+![](https://raw.githubusercontent.com/hackerstech/astrology-conjuctions/refs/heads/main/photo_2026-09-21_14-43-07.jpg)
+
