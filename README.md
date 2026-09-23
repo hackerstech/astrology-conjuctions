@@ -29,6 +29,10 @@ Girls often lies stay aware they will reject i seen
 
 [12-09-2026 20:25] ====: Venus Jupiter 4,7,12 house led to this
 
+ [12-09-2026 20:25] ====: mercury venus in aries  ( one of the indicator)
+ 
+ [12-09-2026 20:25] ====: mars mercury in taurus   ( one of the indicator)
+
 Venus in scorpio 4 mercury in libra 3rd house 10th house Taurus only 
 
 darakarak or atmakarak in same house risk
