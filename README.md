@@ -1,6 +1,8 @@
 <meta name="viewport" content="width=device-width, initial-scale=1.0">
 
-<meta name="astrology" content="using astrology for marriage and girls reality in marriage lets know how red flags are there.">
+<meta name="astrology and marriage" content="using astrology for marriage and girls reality in marriage lets know how red flags are there.">
+
+<meta name="vedic astrology " content="using astrology for marriage and girls reality in marriage lets know how red flags are there.">
 
 # astrology-conjuctions 
 astrological red flags in girls experienced by me in real interaction KP astro and jamini and conjuctions seen
